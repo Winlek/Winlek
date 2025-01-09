@@ -12,7 +12,7 @@
 *Obecnie studiuję **Cyberbezpieczeństwo** na AGH.*  
 W wolnych chwilach uwielbiam *czytać książki i słuchać K-Popu*  
 
-[Moja Strona](https://winlek.github.io/)
+[Moja Strona!](https://winlek.github.io/)
 
 ✨ Cieszę się, że tutaj trafiłeś! ✨  
 
